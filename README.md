@@ -5,7 +5,7 @@
 🔐 **Cybersecurity Enthusiast**  <br/>
 
 ## 📫 Let's Connect  
-💼 [LinkedIn](www.linkedin.com/in/soufyane-boudiaf-833824356) <br/>
+💼 [LinkedIn](https://www.linkedin.com/in/soufyane-boudiaf-833824356/) <br/>
 🤖 [instagram](https://www.instagram.com/mehdi._bdf/)<br/> 
 ✉️ Email: s_boudiaf@estin.dz <br/>
 
